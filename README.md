@@ -18,7 +18,7 @@ I like to:
 Video games, Movies, Tango, long walks on the beach?
 
 I'm learning:
-TO COOOOOOODEEEEE
+TO COOOOOOODEEEEEE
 
 ```
 
